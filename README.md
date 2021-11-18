@@ -1,3 +1,1 @@
-idk what should i write here
-
---XD
+I'm just posting random roblox scripts (NOT BOT)
